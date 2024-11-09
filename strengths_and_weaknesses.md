@@ -1,3 +1,3 @@
 # Strengths 
-Collaboration
+History (time travel)
 # Weaknesses
